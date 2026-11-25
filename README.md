@@ -1,1 +1,1 @@
-# xCH VPN privacy-policy website
+# Zinc VPN privacy-policy website
